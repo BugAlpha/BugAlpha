@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @BugAlpha
 - 👀 I’m interested in CyberSec/BugBounty
-- 💞️ I’m looking to collaborate on ...
 - 📫 My FB : https://www.facebook.com/profile.php?id=100070291552789 
 - Youtube : https://www.youtube.com/channel/UCHDUibpnC84NqK9toLs2cCg
